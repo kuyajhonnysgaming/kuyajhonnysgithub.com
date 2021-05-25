@@ -1,1 +1,1 @@
-# kuyajhonnysgithub.com
+# kuyajhonnysgithub.io
